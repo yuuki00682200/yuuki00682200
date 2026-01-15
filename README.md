@@ -20,7 +20,8 @@ Although I enjoy creating products and supporting learners, my primary work is i
 
 ### Business Positions  
 - **2022.10 – 2024.10**: Business Development at Reiwa Travel.inc
-- **2024.10 – 2025.12**: Corporate Sales / Sales Planning at PR TIMES.inc  
+- **2024.10 – 2025.12**: Corporate Sales / Sales Planning at PR TIMES.inc
+- **2025.01 - now**: Traffic safety promotion at Luup.inc
 
 ---
 
